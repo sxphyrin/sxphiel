@@ -133,3 +133,32 @@ September 15, 2023 - 𝚏𝚝. 𝙼𝚎 (𝙵𝚒𝚣𝚣𝚊𝚛𝚘𝚕𝚕�
 ADDING MORE LATER K
 
 </details>
+
+<details>
+
+<summary>
+𝟐𝟎𝟐𝟒
+</summary>
+
+</details>
+
+
+<details>
+
+<summary>
+𝟐𝟎𝟐𝟓
+</summary>
+
+</details>
+
+
+<details>
+
+2023-2025 is not finished yet cause the images are in my old pc. i only have some from 2026
+
+<summary>
+𝟐𝟎𝟐𝟔
+</summary>
+
+</details>
+
