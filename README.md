@@ -33,7 +33,6 @@ May 07, 2022 - 𝚏𝚝. 𝚈𝚞𝚛𝚒, 𝙹𝚊𝚎, 𝙼𝚎
 <br>
 <img width="600" height="350" alt="Screenshot (658)" src="https://github.com/user-attachments/assets/de015bbb-ad6a-4073-b037-a0260eba1eb3" />
 
-
 June 05, 2022 - 𝙵𝚊𝚝𝚑𝚎𝚛'𝚜 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 | 𝚏𝚝. 𝚁𝚒𝚗 (𝚅𝚎𝚗𝚝𝚒), 𝙼𝚎 (𝚂𝚌𝚊𝚛𝚊𝚖𝚘𝚞𝚌𝚑𝚎), 𝚈𝚞𝚠𝚎𝚗 (𝚋𝚎𝚕𝚘𝚠 𝚖𝚎)
 <br>
 <img width="600" height="350" alt="Screenshot (1172)" src="https://github.com/user-attachments/assets/e340f106-9732-4288-932e-df06f8e235a8" />
@@ -63,6 +62,8 @@ December 27, 2022 - 𝙲𝚑𝚛𝚒𝚜𝚝𝚖𝚊𝚜 𝙿𝚊𝚛𝚝𝚢 @ 
 <img width="600" height="350" alt="Screenshot (1854)" src="https://github.com/user-attachments/assets/080c44ae-d6f2-4bdb-bc38-fafc02a90b26" />
 
 </details>
+
+
 
 <details>
 
@@ -148,6 +149,8 @@ December 31, 2023 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
 
 </details>
 
+
+
 <details>
 
 <summary>
@@ -196,24 +199,9 @@ December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
 December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
 <br>
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 </details>
+
+
 
 <details>
 
@@ -222,6 +210,8 @@ December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
 </summary>
 
 </details>
+
+
 
 <details>
 
