@@ -154,8 +154,66 @@ December 31, 2023 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
 𝟐𝟎𝟐𝟒
 </summary>
 
-</details>
+January 06, 2024 - 𝚏𝚝.𝙼𝚎 (𝚁𝚊𝚗𝚙𝚘) 𝚊𝚗𝚍 𝚊 𝚛𝚊𝚗𝚍𝚘𝚖 𝙺𝚊𝚛𝚕<𝟹𝟹
+<br>
+<img width="600" height="350" alt="Screenshot (3690)" src="https://github.com/user-attachments/assets/e4b197cb-ae76-4169-81a5-53afcfc77c48" />
 
+December 31, 2024 - 𝚏𝚝. 𝚁𝚒𝚗 (𝙵𝚎𝚛𝚒𝚍 𝟷/𝟸), 𝙼𝚎 (𝙵𝚎𝚛𝚒𝚍 (𝟸/𝟸)
+<br>
+<img width="600" height="350" alt="Screenshot (3954)" src="https://github.com/user-attachments/assets/a7f6fa9b-3366-4489-8b7a-a1257f4b0ea0" />
+
+July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝙲𝚘𝚞𝚗𝚝𝚍𝚘𝚠𝚗 ! 𝚂𝚡𝚙𝚑𝚢𝚛𝚒𝚗 @ 𝟷𝟼. | 𝙸𝚕𝚢 𝙺𝚊𝚒 𝚊𝚗𝚍 𝚁𝚒𝚗 ./𝚙 𝚏𝚘𝚛 𝚠𝚊𝚒𝚝𝚒𝚗𝚐 𝚝𝚒𝚕 𝟷𝟸 𝚊𝚖 𝚏𝚘𝚛 𝚖𝚎.
+<br>
+
+July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #1
+<br>
+
+July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #2
+<br>
+
+July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #3
+<br>
+
+July 23, 2024 - 𝟻0+... | 𝚏𝚝. 𝚂𝚊𝚢𝚘𝚞𝚗𝚐, 𝚁𝚒𝚗, 𝙼𝚎
+<br>
+<img width="600" height="350" alt="Screenshot (4150)" src="https://github.com/user-attachments/assets/18904b4c-12a8-4a57-af4a-23ee69883ae2" />
+
+July 23, 2024 - 𝚏𝚝. 𝚂𝚊𝚢𝚘𝚞𝚗𝚐, 𝙼𝚎, 𝚁𝚒𝚗
+<br>
+<img width="600" height="350" alt="Screenshot (4152)" src="https://github.com/user-attachments/assets/45cfbb39-c7ac-4312-bdaa-8960f8bc4996" />
+
+November 11, 2024 -  𝚏𝚝. 𝚂𝚊𝚢𝚘𝚞𝚗𝚐, 𝙼𝚎
+<br>
+<img width="600" height="350" alt="Screenshot (4208)" src="https://github.com/user-attachments/assets/34434b66-158b-4750-80b8-707dc4f357ba" />
+
+November 27, 2024 - 𝟻0+ 𝚊𝚐𝚊𝚒𝚗
+<br>
+<img width="600" height="350" alt="Screenshot (4221)" src="https://github.com/user-attachments/assets/00fb0aea-c942-4a41-aeb9-66ac3b788261" />
+
+December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
+<br>
+
+December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
+<br>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+</details>
 
 <details>
 
