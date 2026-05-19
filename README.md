@@ -8,7 +8,10 @@
 <img width="200" height="200" src=https://i.pinimg.com/originals/ac/74/cc/ac74ccf0893a2453c53b0774f446d183.gif>
 <br>
 @𝒔𝒙𝒑𝒉𝒚𝒓𝒊𝒏 𝑷𝑻 𝑴𝒐𝒎𝒆𝒏𝒕𝒔 𝟐𝟎𝟐𝟐-𝟐𝟎𝟐𝟔
+<br>
+i lost many photos of late 2025-early 2026 cause my mom deleted the photos from her laptop (╥﹏╥)
 </p>
+
 
 
 <details>
@@ -103,6 +106,10 @@ August 08, 2023 - 𝙾𝚞𝚛 𝚏𝚒𝚛𝚜𝚝 𝚍𝚊𝚢 𝚊𝚝 𝚂�
 <br>
 <img width="600" height="350" alt="Screenshot (2490)" src="https://github.com/user-attachments/assets/49a1149a-657c-468c-9752-f4c6bac9c53c" />
 
+August 20, 2023 - 𝙼𝚘𝚜𝚑𝚒'𝚜 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 ! | 𝚏𝚝. 𝙼𝚎, 𝙼𝚘𝚜𝚑𝚒, 𝚁𝚒𝚗
+<br>
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/71491796-9a31-48a0-8353-de4451a94f28" />
+
 September 02, 2023 - 𝚏𝚝. 𝙼𝚎 (𝙺𝚘𝚔𝚘𝚗𝚘𝚒), 𝚁𝚒𝚗 (𝚒𝚜 𝚝𝚑𝚊𝚝 𝙼𝚒𝚌𝚑𝚊𝚎𝚕 𝚘𝚛 𝚆𝚒𝚕𝚕𝚒𝚊𝚖)
 <br>
 <img width="600" height="350" alt="Screenshot (2881)" src="https://github.com/user-attachments/assets/712fadbb-2559-471c-8cc6-fcc21d6c0016" />
@@ -130,6 +137,12 @@ September 10, 2023 - 𝚏𝚝. 𝚁𝚒𝚗 (𝚊𝚏𝚔), 𝙼𝚎
 September 15, 2023 - 𝚏𝚝. 𝙼𝚎 (𝙵𝚒𝚣𝚣𝚊𝚛𝚘𝚕𝚕𝚒)𝚁𝚒, 𝚗 (𝙰𝚜𝚖𝚘𝚍𝚎𝚞𝚜)
 <br>
 <img width="600" height="350" alt="Screenshot (3140)" src="https://github.com/user-attachments/assets/80e8da0a-9949-4cb8-b77d-9231dac668e1" />
+
+September 19, 2023 - 𝚁𝚒𝚗𝚞𝚖𝚊𝚛𝚞'𝚜 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 ! | 𝚏𝚝. 𝚁𝚒𝚗, 𝙼𝚎, 𝙼𝚘𝚜𝚑𝚒
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/bfc55cbc-6722-478e-a8e0-7fa28e47786e" />
+
+September 19, 2023 - 𝚁𝚒𝚗'𝚜 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝙿𝚒𝚌 #𝟸 | 𝚏𝚝.  𝙼𝚎, 𝚁𝚒𝚗, 𝙼𝚘𝚜𝚑𝚒
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/7cb453f0-4549-4f93-884c-5033d6167fde" />
 
 October 17, 2023 - 𝚏𝚝. 𝙼𝚎 (𝚅𝚎𝚗𝚝𝚒), 𝙻𝚎𝚒𝚜 (𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚖𝚘𝚝𝚑𝚎𝚛 !)
 <br>
@@ -170,12 +183,15 @@ July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝙲𝚘𝚞𝚗𝚝𝚍𝚘�
 
 July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #1
 <br>
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/027efc3a-324c-4848-9e93-4a966ff760d0" />
 
 July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #2
 <br>
+<img width="600" height="480" alt="image" src="https://github.com/user-attachments/assets/10ae7577-962c-4d3b-b1d2-7e47f61f87dd" />
 
 July 12, 2024 - 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚙𝚒𝚌𝚜 𝚠 𝚁𝚒𝚗 #3
 <br>
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/e9840196-aaac-4247-aad5-034560caa3d3" />
 
 July 23, 2024 - 𝟻0+... | 𝚏𝚝. 𝚂𝚊𝚢𝚘𝚞𝚗𝚐, 𝚁𝚒𝚗, 𝙼𝚎
 <br>
@@ -193,11 +209,13 @@ November 27, 2024 - 𝟻0+ 𝚊𝚐𝚊𝚒𝚗
 <br>
 <img width="600" height="350" alt="Screenshot (4221)" src="https://github.com/user-attachments/assets/00fb0aea-c942-4a41-aeb9-66ac3b788261" />
 
-December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
+December 03, 2024 - 𝙼𝚒𝚔𝚊𝚢𝚞𝚞 | 𝚏𝚝. 𝚇𝚎𝚊 (𝙼𝚒𝚔𝚊𝚎𝚕𝚊), 𝙼𝚎 (𝚈𝚞𝚒𝚌𝚑𝚒𝚛𝚘)
 <br>
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/634dc43f-a65a-4dac-904d-80142afe1c88" />
 
-December 31, 2024 - 𝙶𝚒𝚏𝚝 𝙻𝚒𝚗𝚎
+December 15, 2024 - 𝙷𝚞𝚊𝚕𝚒𝚊𝚗 | 𝚏𝚝. 𝚇𝚎𝚊 (𝙷𝚞𝚊 𝙲𝚑𝚎𝚗𝚐), 𝙼𝚎 (𝚇𝚒𝚎 𝙻𝚒𝚊𝚗)
 <br>
+<img width="600" height="350" alt="image" src="https://github.com/user-attachments/assets/7cf31cd1-1264-4e19-a77e-efa698327630" />
 
 </details>
 
