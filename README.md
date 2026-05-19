@@ -9,7 +9,8 @@
 <br>
 @𝒔𝒙𝒑𝒉𝒚𝒓𝒊𝒏 𝑷𝑻 𝑴𝒐𝒎𝒆𝒏𝒕𝒔 𝟐𝟎𝟐𝟐-𝟐𝟎𝟐𝟔
 <br>
-i lost many photos of late 2025-early 2026 cause my mom deleted the photos from her laptop (╥﹏╥)
+i lost many photos of early 2026 cause my mom deleted the photos from her laptop (╥﹏╥). 2025 is still blank cause its in my old laptop.
+<br>
 <br>
 <sub>Latest images might be stretched cause i started using the snipping tool</sub>
 <br>
