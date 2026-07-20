@@ -349,5 +349,8 @@ July 15, 2026 - UmbrellaGraves <3 (ft. Vampguest/Cipher, Vampnoob/Me)
 <br>
 <img width="600" height="400" alt="Screenshot 2026-07-15 143154" src="https://github.com/user-attachments/assets/3288fdbf-13a0-4561-b290-45f7c7144106" />
 
+July 19, 2026
+<br>
+<img width="600" height="350" alt="Screenshot 2026-07-19 184909" src="https://github.com/user-attachments/assets/d50048ed-7e32-4614-9dda-bdcbf4529fa1" />
 
 </details>
